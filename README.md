@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **tung.nv2510@gmail.com**
 
-- ⚡ Hobbies: **I love playing football ️⚽️️⚽️️⚽️**
+- ⚡ Hobbies: **Football ️⚽️️⚽️️⚽️**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
